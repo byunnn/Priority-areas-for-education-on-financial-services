@@ -1,2 +1,28 @@
 # Selection of priority areas for education on financial services for vulnerable elderly population in Seoul
 고령 정보 취약 계층을 위한 생활 금융 서비스 교육 우선 지역 선정
+
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0001](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/bace3d96-ef61-41db-9328-c318e01985ea)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0003](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/f6c1b1dc-2be8-4e2a-8754-979ae00dffac)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0004](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/cb5696a1-8f33-4987-83db-bd6e90c21e0f)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0005](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/bf957d21-d8ff-40a0-aa4c-0ee93ea20b7f)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0006](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/38f49d65-6975-4c13-8aae-2cd746ed5300)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0007](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/f9ea52a9-deb3-4969-8fa7-52af21d0cb93)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0008](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/8eb57a0d-ecc2-49c7-9ff7-f033612d6668)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0009](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/d9d3bf05-e656-4670-9a2f-7cd37295d1c2)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0010](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/74850467-25d4-4bca-ad86-189dadcbf913)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0011](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/077dcd79-b7a3-48e2-a18f-c33f1f3f0d54)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0012](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/65b80378-298d-411c-ba30-4fa1ced6b0c1)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0013](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/09347314-08de-4eab-930b-416cfb5944ef)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0014](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/047b25e2-e0ae-4671-9d5f-a55315686141)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0015](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/d901465f-562c-4906-a924-7f82a7166ad7)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0016](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/b8dd4c41-c18e-4b8c-950e-89362641e431)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0017](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/508d66a5-3a2e-4e55-9642-5566dc759e65)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0018](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/715c1d9e-a754-4191-ba71-5a3296e0f391)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0019](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/9c43b84e-842e-4fba-b064-a7dd781634b8)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0020](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/9c1d1cdc-7301-4734-ac94-77834099c060)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0021](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/6b61f680-a38f-4cdf-8eb2-6bd026ccd084)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0022](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/4777eb56-0a70-45c5-8b27-f8d54f981ec1)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0023](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/e5d3f933-3980-40f2-b981-c58bacf857f4)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0024](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/31f05e2d-85b2-4dd9-a434-13b6a488a85a)
+![노인을 위한 나라는 있다_ 발표자료(시상식 ver)_page-0025](https://github.com/byunnn/Priority-areas-for-education-on-financial-services/assets/65805298/43f20d95-d627-486c-b5c8-05da26f17320)
+
